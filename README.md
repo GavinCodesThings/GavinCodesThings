@@ -14,10 +14,5 @@ My favorite color is blue
 
 Plan on being either a moderator or anti-cheat developer for Hypixel
 
-idk ill finish this later
-
-
-
-
-
+### school
 school
